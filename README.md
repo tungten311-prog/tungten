@@ -9,6 +9,7 @@ Lumina Scarf was created with a signature stained glass romantic print exploring
 er Natali and her husband Alex started this gorgeous brand Natali Alexander, designing and releasing 350 numbered scarves. The Lumina Scarf was crea
 ted with a signature stained glass romantic print exploring how darkness gives light its meaning 🖤 love them so much My sister Natali and her husba
 
+
 My sister Natali and her husband Alex started this gorgeous brand Natali Alexander, designing and releasing 350 numbered scarves. The Lumina Sc
 arf was created with a signature stained glass romantic print exploring how darkness gives light its meaning 🖤 love them so much My sister Nata
 li and her husband Alex started this gorgeous brand Natali Alexander, designing and releasing 350 numbered scarves. The Lumina Scarf was created 
