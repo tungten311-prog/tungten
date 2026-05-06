@@ -19,6 +19,7 @@ My sister Natali and her husband Alex started this gorgeous brand Natali Alexand
 
 
 
+
 My sister Natali and her husband Alex started this gorgeous brand Natali Alexander, designing and releasing 350 numbered scarves. The Lumina Sc
 
 arf was created with a signature stained glass romantic print exploring how darkness gives light its meaning 🖤 love them so 
