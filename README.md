@@ -17,6 +17,7 @@ s brand Natali Alexander, designing and releasing 350 numbered scarves. The Lumi
 arf was created with a signature stained glass romantic print exploring how darkness gives light its meaning 🖤 love them so 
 
 
+
 My sister Natali and her husband Alex started this gorgeous brand Natali Alexander, designing and releasing 350 n
 umbered scarves. The Lumina Sc
 
